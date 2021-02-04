@@ -1,1 +1,1 @@
-[GitHub] (https://github.com/ScuffedEgg)
+[GitHub Profile](https://github.com/ScuffedEgg)
